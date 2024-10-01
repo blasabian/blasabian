@@ -41,7 +41,7 @@ Actualmente estoy trabajando en:
 ### 🌐 Cómo contactarme
 
 - Email: blarsillo@gmail.com
-- LinkedIn: [Perfil de LinkedIn](https://www.linkedin.com/in/tuperfil) *(actualiza con tu perfil real)*
+- LinkedIn: https://www.linkedin.com/in/blas-abián-del-toro-gómez-5a0167313/
 
 ---
 
